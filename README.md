@@ -5,4 +5,5 @@ vessel's dream girl & pocket's pillow princess <br><br> <img width="500" height=
 just fyi, most deadlock ships or character x character ships in general arent my thing. <br>
 i also consider vessel to be his own character, entirely separate from whoever plays him.
 <br> i'm a non-sharing vessel and pocket selfshipper<3 <br><br>
-<img width="900" height="" src="https://files.catbox.moe/v3ly8b.png"> </p>
+<img width="900" height="" src="https://files.catbox.moe/v3ly8b.png"> <br> 
+<img width="400" height="450" src="https://files.catbox.moe/591s7j.png"> <br> who else up getting pinned by pocket </p>
